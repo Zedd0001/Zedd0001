@@ -1,5 +1,5 @@
 # 💫 About Me:
-💻Just coding<br>📍Portugal<br>☄️I see some rokies around here
+💻Just coding<br>📍Portugal<br>☄️I see some rookies around here
 
 
 ## 🌐 Socials:
